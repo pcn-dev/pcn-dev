@@ -1,4 +1,4 @@
-## Falaaa, pessoal! Sou o Paulo Caetano
+## Falaaa, pessoal! Sou o Paulo Caetano!
 
 - 👨🏻‍💻 Hoje trabalho como Jovem Aprendiz Administrativo
 - 📘 Estudando Ciência da Comuptação
