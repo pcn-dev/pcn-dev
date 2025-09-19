@@ -1,7 +1,4 @@
-## Falaaa, pessoal! Sou o Paulo Caetano!
-
-- 👨🏻‍💻 Hoje trabalho como Jovem Aprendiz Administrativo
-- 📘 Estudando Ciência da Comuptação
+<img width="1581" height="515" alt="Paulo Caetano" src="https://github.com/user-attachments/assets/90264457-faa6-4474-8a10-f688d7937563" />
 
 ##
 
