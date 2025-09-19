@@ -1,4 +1,4 @@
-<img width="1581" height="515" alt="Paulo Caetano" src="https://github.com/user-attachments/assets/90264457-faa6-4474-8a10-f688d7937563" />
+<img width="1581" height="515" alt="Paulo Caetano (1)" src="https://github.com/user-attachments/assets/38f39d51-c129-4e63-b712-a8b32a2ca969" />
 
 ##
 
